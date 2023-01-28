@@ -1,0 +1,1 @@
+# Small-part-of-the-periodic-table-for-jarvis
